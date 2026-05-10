@@ -1,4 +1,4 @@
-
+updated Notion for macOS Extension | export to PDF + quick search offers the most advanced Notion for macOS extension, with export to PDF and quick search. Ideal for professionals.
 
 
 
